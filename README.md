@@ -9,4 +9,5 @@ I'm always on the lookout for opportunities to apply my skills in real-world sce
 
 Outside of academics, I enjoy exploring the beautiful landscapes of Tharaka, engaging in community activities, and occasionally unwinding with friends over a cup of coffee at the local café. Life as a computer science student at Tharaka University is a perfect blend of rigorous learning, personal growth, and unforgettable experiences.
 
-WhatsApp Image 2025-01-18 at 23 13 33_d79de848
+![WhatsApp Image 2025-01-18 at 23 13 33_d79de848](https://github.com/user-attachments/assets/8f770a05-566a-4e32-89f0-65f453b0361b)
+
